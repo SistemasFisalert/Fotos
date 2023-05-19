@@ -6,3 +6,6 @@
 
 
 ![1](https://github.com/SistemasFisalert/Fotos/assets/134037314/2bae86ab-f7e6-48bd-994f-78ffdb45a50f)
+
+
+![3](https://github.com/SistemasFisalert/Fotos/assets/134037314/25e01a2a-b2cb-4370-94b7-396d1dac6f92)
